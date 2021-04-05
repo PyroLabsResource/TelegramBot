@@ -24,4 +24,4 @@
 
 ======================================================
 
-➥ Se trovi qualcosa che non va contattaci su TG ➟ @zN0rTlhy_ | @zTricKly_
+➥ Se trovi qualcosa che non va contattaci su TG ➟ @zN0rTlhy | @zTricKly
