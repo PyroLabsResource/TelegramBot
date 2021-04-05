@@ -21,3 +21,7 @@
 5) ➟ Crea una nuova app
 
 6) ➟ Una volta creata avrai "api_id" personale e "api_hash" personale
+
+======================================================
+
+➥ Se trovi qualcosa che non va contattaci su TG ➟ @zN0rTlhy_ | @zTricKly_
